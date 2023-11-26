@@ -1,1 +1,0 @@
-# anslate.github.io
